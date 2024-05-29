@@ -1,1 +1,1 @@
-# https://niinotaro.github.io/
+# https://niinotaro.github.io/nino_note/
